@@ -20,3 +20,6 @@
 <img src="https://files.catbox.moe/e0ryp1.gif" width="200" />
 
 ᵖᶦᵍᵍʸˀ ᵗʰᵃᵗ ʷᵃˢ ᵐᵘʳᵈᵉʳ.
+<h6 align="center">
+
+<img src="https://files.catbox.moe/ihx4hr.gif" width="200" />
